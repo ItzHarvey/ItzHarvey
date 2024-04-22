@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on Game Development
 - 📫 How to reach me :
   Email : harveyjeremy.hs@gmail.com
-- 😄 Pronouns: \har fiy\
+- 😄 Pronouns: He / His
